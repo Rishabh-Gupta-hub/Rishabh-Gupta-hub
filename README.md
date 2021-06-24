@@ -1,4 +1,4 @@
-### Hola! Rishabh this side 👋
+### Hola! Rishabh this side <img src="https://github.com/thomasbnt/thomasbnt/blob/me/assets/hi.gif" width="25px">
        A man of focus, commitment and sheer will to do anything.
 
 
