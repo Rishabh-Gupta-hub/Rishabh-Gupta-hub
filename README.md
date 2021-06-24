@@ -7,5 +7,5 @@
 - 🤔 I’m looking for my dream job 
 - 💬 Ask me about how it's done?
 - 📫 How to reach me: guptarishabh.rg8@gmail.com
-- ⚡ Fun fact: It's happening!
--->
+- ⚡ Fun fact: It's happening out there!
+
